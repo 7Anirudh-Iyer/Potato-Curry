@@ -1,0 +1,21 @@
+Recipe for fried potato curry
+
+Ingredients:
+1. Potatoes
+2. Cumin seed
+3. Mustard seeds
+4. Urad dal
+5. Red Chilli powder
+6. Salt
+7. Turmeric
+
+Preparation:
+Step 1: Cut the potatoes into finger-like shapes but very thinly.
+Step 2: Clean the cut potatoes
+Step 3: Add some oil into a pan
+Step 4: After the oil is sufficiently heated, add some urad dal and cumin seeds
+Step 5: Wait for the urad dal to become golden in colour, then add the potatoes
+Step 6: Cook for a while depending on the amount of potatoes
+Step 7: Then, add the chilli powder, salt and turmeric and mix well
+Step 8: Cook until well fried
+Step 9: Serve hot! and enjoy!
